@@ -62,5 +62,5 @@ Shape Reality.”**
 
 ---
 
-© 2025 HopefulVision LLC · FASHION/UTO Project  
+FASHION/UTO Project  
 _Part of the ê/uto Network — Building Ethical, Aesthetic Futures_
